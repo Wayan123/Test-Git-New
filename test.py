@@ -1,0 +1,1 @@
+Ikan asin wuenak tenan
